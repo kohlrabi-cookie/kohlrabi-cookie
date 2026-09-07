@@ -1,3 +1,5 @@
+<img width="736" height="414" alt="──꒰✉️꒱ ❞   ‧₊˚ ⏝ ͝ㅤㅤᛝㅤㅤ" src="https://github.com/user-attachments/assets/788f5430-f74d-457e-a1c4-5b43b0b8590a" />
+
 ![Uploading ──꒰✉️꒱ ❞   ‧₊˚ ⏝ ͝ㅤㅤᛝㅤㅤ.jpeg…]()
 
 ![Uploading Unknown 58.jpeg…]()
