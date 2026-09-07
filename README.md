@@ -1,7 +1,4 @@
 
-<img width="500" height="500" alt="Unknown 84" src="https://github.com/user-attachments/assets/f4d1b943-dfa8-4aeb-b949-fc9260c73b23" />
-<img width="736" height="414" alt="──꒰✉️꒱ ❞   ‧₊˚ ⏝ ͝ㅤㅤᛝㅤㅤ" src="https://github.com/user-attachments/assets/9f96a085-889f-437e-97df-c6088d5a0877" />
-
 ![Uploading Unknown 58.jpeg…]()
 
 
