@@ -2,13 +2,6 @@
 
 ![Uploading Unknown 58.jpeg…]()
 
-<img width="589" height="692" alt="Unknown 73" src="https://github.com/user-attachments/assets/1586ae32-afa5-4247-b80a-9e524d1b4d63" />
-<img width="736" height="981" alt="Unknown 69" src="https://github.com/user-attachments/assets/23cd1bfa-cd2f-4360-a499-b6cd0f27273b" />
-<img width="500" height="544" alt="Unknown 85" src="https://github.com/user-attachments/assets/6fb7bcaa-7668-4551-9ab9-1866f1c2a636" />
-<img width="736" height="736" alt="Rentry frame" src="https://github.com/user-attachments/assets/0c4e941f-34cb-4616-b6ba-a4bc497f6aca" />
-<img width="735" height="618" alt="Unknown 76" src="https://github.com/user-attachments/assets/b4d18d7c-01d5-48b5-9b85-0e1f78154522" />
-<img width="549" height="500" alt="Unknown 71" src="https://github.com/user-attachments/assets/2d9fd1f2-3cbc-4bed-8580-6e9a1bdfec43" />
-
 
 <img width="1500" height="612" alt="IMG_0762" src="https://github.com/user-attachments/assets/b32f54df-9d81-46bd-897b-a74d9643aeeb" />
 
