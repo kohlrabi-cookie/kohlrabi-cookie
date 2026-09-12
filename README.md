@@ -44,19 +44,3 @@ i amm a good listener im just horrible at responding .
 do not sexually harass or roleplay with me . i am a minor i will block / ignore / mute you . 
 
 
-# Say hello to my moots boiii 
-
-hi  ; [@LAWRIE](https://github.com)
-
-
-UGGGHH DONTCALLME BORING I AM NOT BORING <  [@DamianWifey](https://github.com)
-
-
-So many gifthubless moots tsk tsk tsk …. 
-
-
-
-
-
-
-
