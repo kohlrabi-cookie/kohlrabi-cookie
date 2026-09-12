@@ -1,4 +1,4 @@
-
+<img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=ff0000&center=true&vCenter=true&repeat=true&width=700&lines=TURNING+IT+UP+TO+ELEVEN+HAHAHAHA!;A+FORMIDABLE+FOE+ILL+BEST+YOU+FOR+SHO;THE+ACE+OF+BLADES!;YOU+NEED+A+NERF.;Oh+you+better+be+nice+or+ill+get+my+dice.;D20+in+hand+dragon+at+my+command.;Winging+it+dragon+style!;SAY+YOUR+PRAYERS+LITTLE+ONE!;LET+THE+BRAWLWERS+HIT+THE+FLOOR.;BUT+MY+SPIRIT+REMAINS+UNBROKEN!;STABIBY+STAB!;FANCY+LANCY;Metal+warriors+number+ONEEEE!;And+To+The+Dragon+Man;I+WILL+I+WILL+ROCK+YOOU!;Flame+WAAAAOOOOR!;INFLATE+O+DRAGOOON!;POWER+CHORD!;Woefully+Wiped+Out.;Dragon+Breath!;Rumble+And+Roar+To+The+Top+I+soarrr!;time+to+shred+some+foes!;You+Want+A+Toast+Get+Ready+To+Roast!;seek+and+destroy!;dive+bomb!;epic+quest+fail.;shoot+to+thrill+play+to+kill!;just+kidding!;i+got+shreded+bleh"/>
 
 <img width="109" height="68" alt="Untitled107_20260912173621" src="https://github.com/user-attachments/assets/1cc7492c-6558-45a1-ba7d-9025b2d12ee3" />
 <img width="109" height="67" alt="Untitled107_20260912173644" src="https://github.com/user-attachments/assets/198e3dc6-5a50-489e-9d51-717b4e61f806" />
@@ -42,6 +42,19 @@ do NOT attempt to roleplay with me , i might ignore you .
 i amm a good listener im just horrible at responding .
 
 do not sexually harass or roleplay with me . i am a minor i will block / ignore / mute you . 
+
+
+# Say hello to my moots boiii 
+
+hi  ; [@LAWRIE](https://github.com)
+
+
+UGGGHH DONTCALLME BORING I AM NOT BORING <  [@DamianWifey](https://github.com)
+
+
+So many gifthubless moots tsk tsk tsk …. 
+
+
 
 
 
