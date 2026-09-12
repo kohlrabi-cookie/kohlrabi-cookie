@@ -14,3 +14,16 @@
 <img width="109" height="67" alt="Untitled107_20260912214730" src="https://github.com/user-attachments/assets/03c75def-3439-4eca-9794-b12cdcaf6099" />
 
 <img width="109" height="67" alt="Untitled107_20260912213627" src="https://github.com/user-attachments/assets/da5cb5a0-09cc-4318-9705-72f102dbea68" />
+
+# Statues . 
+🌙- busy/ offtab 
+
+
+🟢+💬 - Feel free to interact .
+
+
+⛔ - multitasking, dniuf + possibly extremely l8 resp. 
+
+
+🎭 - roleplaying  ; i dontuse this one …
+
