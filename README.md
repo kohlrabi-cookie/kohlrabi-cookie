@@ -27,3 +27,23 @@
 
 🎭 - roleplaying  ; i dontuse this one …
 
+# BYI 
+<img width="20" height="20" alt="IMG_0966" src="https://github.com/user-attachments/assets/8fda7173-0263-476c-8279-53807feb0eb1" />
+Read my strawpage …. 
+
+i might overtalk abour draco or me,,,,,,, 
+
+i normally dont talk that much 
+
+interact first , i wont be bothered to do so because im a ISFP type . 
+
+do NOT attempt to roleplay with me , i might ignore you . 
+
+i amm a good listener im just horrible at responding .
+
+do not sexually harass or roleplay with me . i am a minor i will block / ignore / mute you . 
+
+
+
+
+
